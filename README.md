@@ -1,9 +1,10 @@
 - 👋 Hi, I’m @asiareetah
 - 👀 I’m interested in air
-- 🌱 I’m currently learning PowerBI and SQL, through my blog
-- 💞️ I’m looking to collaborate on AI projects
-- 📫 How to reach me @asiareetah on X
-- 😄 Pronouns: huh?
+- 🌱 I’m a thoradore, dissolved in magic
+- ⛈️ I leave memories on skin and soul
+- 💞️ Dare to clone thyself
+- 📫 Yeah, text me.
+- 😄 Pronouns: it because everyone says, "never seen anything like it before." looking from me to a product i made, and back, on and on...
 - ⚡ Fun fact: I was born on a Tuesday!
 
 <!---
